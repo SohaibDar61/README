@@ -15,6 +15,7 @@ And besides my full time job as a software engineer, I am also passionate about 
 If you wish, you could reach out to me through:
 
 Email Address: eng.sohaibdar@gmail.com
+
 LinkedIn URL: https://www.linkedin.com/in/sohaibdar61
 
 
